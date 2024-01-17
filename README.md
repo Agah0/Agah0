@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Agag Bekir Özdemir
+- 👋 Hi, I’m @Agah Bekir Özdemir
 - 👀 I'm interested in software 
 - 🌱 I'm trying to learn software 
 - 📫 How to reach me ig:agah_ozdmr
